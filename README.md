@@ -18,4 +18,4 @@ today i have learnd
 
 [Link Zu youtube](https://www.youtube.com/@Naveedvlog786/about)
 
-![beutybild](beutybild.jpg)
+![rob](rob.jpg)
